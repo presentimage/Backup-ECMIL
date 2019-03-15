@@ -1,0 +1,80 @@
+---
+ID: 6969
+post_title: Sustainable Steel Facts
+author: admin
+post_excerpt: >
+  Steel in all its forms plays a
+  significant role in our region’s
+  stable environmental development,
+  providing sustainability to our long
+  term ecological balance and security.
+layout: post
+permalink: >
+  https://ecmil.net/sustainable-steel-facts/
+published: true
+post_date: 2019-01-23 13:50:33
+---
+<span class="tve_image_frame"><img class="tve_image" style="width: 370px;" src="http://ecmil.net/master/wp-content/uploads/2016/06/master41.png" alt="" width="370" height="153" /></span>
+<p style="text-align: center;" data-css="tve-u-163a73cb9bd">Harvest water all around</p>
+<p data-css="tve-u-166a2076310"><strong>The season of uncertainty rolls on and as it does, there is an inordinate </strong><strong>amount of water all around.  Florida, the Carolinas and the Gulf coast are awash.  Our islands have the same wet story.</strong></p>
+<strong>We can’t stop the rain, but ECMIL can assist you </strong><strong>with reliable tools to harvest and manage it.</strong>
+
+If you don’t have a plan, there has never been a better time to make one.  Rain shows the weaknesses, leaks and saturation and gives us a sure fire guide to potential damage, disaster and fix-it list.
+<p style="text-align: center;" data-css="tve-u-166a20987ec"><strong>But let’s be positive, proactive and ingenious.</strong></p>
+If we should protect ourselves and our property from so much water, then we should also consider rainwater harvesting as a worthwhile outcome to the changes and upgrades which we make.
+
+This harvesting and storage may also be of critical importance if extreme weather knocks out the mains water supply.
+
+Rainwater collected from a house roof potentially provides a high quality source of drinking water.
+<p style="text-align: center;"><span style="color: #0063be;">The ‘harvestable’ volume is relative to the catchment area.</span></p>
+Although this may be viewed as seasonal, it is nevertheless substantial over a 12 month period. Storage and quality management must also factorin this conversation.
+
+The available rain in your area will determine your overall rainwater policy. Time to investigate local meteorological authorities to ascertain annual and monthly rainfall volumes and patterns.
+
+Calculate the the surface area of your roof.  Multiply the length of your roof in metres by the width.  This will give you the area in square metres and will be your rainwater catchment area.
+
+To calculate how much rainwater can be harvested from your roof, multiply your rainfall in millimetres by your surface area of your catchment in square metres.  The resulting number represents how many litres of water you can expect to collect.  This figure is a reasonable guideline to expected storage.
+
+The official monthly rainfall volumes will pinpoint the expected highs and lows, so if you have enough information going back three to five years, you could predict and make provision for an annual volume.  It would be advisable to make appropriate space for annual increases too.
+
+Having made your calculations and a reasonably conservative plan as to what this water will be used for, it’s time to consider the components for catchment and transmission to a chosen storage location.
+
+Remember that this must also connect to your plan for repurposing, so a well chosen site is critical.
+
+At this point ECMIL can supply the following:
+
+<span class="tve_image_frame" style="width: 100%;"><a href="http://ecmil.net/an-ecmil-roof/" target="_blank" rel="nofollow noopener"><img class="tve_image wp-image-5431" style="width: 100%;" title="zinc2" src="//ecmil.net/master/wp-content/uploads/2016/07/zinc2.jpg" alt="" width="1200" height="400" data-id="5431" /></a></span>
+
+• Zincalume® A tried and tested eco friendly high performance steel for roofing or siding, with a manufacturer recommendation
+<p style="text-align: center;"><span style="color: #0063be;">‘…<em>the use of Zincalume® steel </em></span><em><span style="color: #0063be;">for the collection of drinking water.’</span></em></p>
+<span class="tve_image_frame" style="width: 100%;"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/gutas1.jpg" rel=""><img class="tve_image wp-image-4669" style="width: 100%;" title="gutas" src="//ecmil.net/master/wp-content/uploads/2013/12/gutas1.jpg" alt="" width="562" height="281" data-id="4669" /></a></span>
+<p style="text-align: left;">• K-Style Aluminium guttering dirt resistant, offered in white, in .027 gauge aluminium</p>
+<span class="tve_image_frame" style="width: 100%;"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/headpipe.jpg" rel=""><img class="tve_image wp-image-4824" style="width: 100%;" title="headpipe" src="//ecmil.net/master/wp-content/uploads/2013/12/headpipe.jpg" alt="" width="582" height="281" data-id="4824" /></a></span>
+
+• PVC piping - in convenient sizes
+
+<span class="tve_image_frame" style="width: 100%;"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/fab.033.jpg" rel=""><img class="tve_image wp-image-4352" style="width: 100%;" title="fab.033" src="//ecmil.net/master/wp-content/uploads/2013/12/fab.033.jpg?resolution=1920,1" alt="" width="600" height="200" data-id="4352" data-adaptive-images="true" /></a></span>
+
+• Custom built galvanise water tanks - stock sizes also available.
+
+Rainwater harvesting and storage can clearly provide an invaluable amount of water. There are two common reasons people choose to install rainwater storage.
+<ul class="">
+ 	<li class="">Out of necessity - The property is not served by mains water</li>
+ 	<li class="">An alternative source of water, to be more self-sufficient, or to meet building requirements.</li>
+</ul>
+<p data-css="tve-u-166a3fff961">As we brace for global climate change, we must view each and every difficulty as an opportunity and utilise reliable materials and good management to benefit from the changes in the forces of nature around us.</p>
+<p data-css="tve-u-166a3fff962">The famous byline “Water is Life” comes to mind, but this is only true if we respect its capabilities and as some say, ‘feed it with a long spoon!’</p>
+<p data-css="tve-u-166a4003d76">We augment these products with readily available experience provided by our friendly sales staff.</p>
+<p data-css="tve-u-166a4003d79">Call your ECMIL sales representative today and discovery how you can join the efforts towards self sufficiency, by utilising steel to harness some of what nature presents to us in abundance!</p>
+<p data-css="tve-u-1660c559bad"><strong><span style="color: #0063be;" data-css="tve-u-1660c5d62aa">Our comprehensive approach is as cost effective as it is efficient.</span></strong></p>
+<p data-css="tve-u-1660c553111">All of these items can be consolidated in a container and shipped to your project site, saving you valuable construction time and providing secure storage.</p>
+<p data-css="tve-u-1660c556cd4">We can fabricate all manner of custom steel requirements such as gates, burglar bars and water tanks, removing the problems of on site welding and transportation.</p>
+<p data-css="tve-u-164dd6a1284"><strong>now read this...</strong></p>
+<p class="class=" data-css="tve-u-16437bb0da4"><strong>In the event of a storm...</strong></p>
+<p class="class=" data-css="tve-u-1643805cdcd"><strong><span style="color: #ffffff;" data-css="tve-u-1643804f4c1"> Heed all Official Warnings. </span></strong></p>
+<p class="class=" data-css="tve-u-1643805fdc0"><span style="color: #ffffff;" data-css="tve-u-1643804f4c3"><strong> Be Safe. Stay Safe. </strong></span></p>
+<p class="class=" data-css="tve-u-16438060b83"><span style="color: #ffffff;" data-css="tve-u-1643804f4cd"><strong> DON'T take unnecessary risks.</strong></span></p>
+<p class="class=" data-css="tve-u-16437bb0daf"><span style="color: #ffffff;" data-css="tve-u-1643804f4d8"><strong> Wait for the All Clear, </strong></span><strong><span style="color: #ffffff;" data-css="tve-u-1643804f4e4"> before venturing out from safety.</span></strong></p>
+&nbsp;
+<p data-css="tve-u-16438401a8b"><em>NB. This article is for general information purposes <strong>only</strong> and is meant as an incentive to the reader, who should then research and seek advice from appropriate </em><em><strong>National Emergency Management Organisation</strong> </em><em>professionals, </em><em>to confirm that the recommendations expressed are in alignment with the standards and directives of their territory, which may vary from time to time.</em></p>
+<p class="tve_p_center" style="margin: 0px 0px 0px 40px; border: none; padding: 0px; font-size: 12px; font-family: Arial, Helvetica, sans-serif;">East Caribbean Metals Industries Limited . Campden Park Industrial Estate . St. Vincent &amp; The Grenadines  West Indies . T: +1 784 456 1843    F: +1 784 457 7641    E: info@ecmil.net</p>

@@ -1,0 +1,32 @@
+---
+ID: 4949
+post_title: Your Roof and The Need to Accessorize!
+author: admin
+post_excerpt: 'In times gone by roof construction was a basic affair.  Then came the roofing screw and with it Sealant Tape and Bat Proofing making a radical change towards better building standards and aesthetics.'
+layout: post
+permalink: >
+  https://ecmil.net/your-roof-and-the-need-to-accessorize/
+published: true
+post_date: 2016-04-21 23:28:18
+---
+<h2 class="p1"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/ac1.0011.jpg"><img class="alignnone size-full wp-image-4960" src="http://ecmil.net/master/wp-content/uploads/2013/12/ac1.0011.jpg" alt="ac1.001" /></a></h2>
+<h2 class="p1"><span style="color: #808080;">In times gone by roof construction was a basic affair.</span> <span class="Apple-converted-space">  </span></h2>
+<p class="p1"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/87670570_XS.jpg"><img class="alignleft wp-image-4954" src="http://ecmil.net/master/wp-content/uploads/2013/12/87670570_XS.jpg" alt="87670570_XS" width="196" height="196" /></a>Wooden purlins and basic roof sheeting were the standard.<span class="Apple-converted-space">  </span>The better projects included an internal ceiling hiding the underbelly of the galvanized sheets.<span class="Apple-converted-space">
+</span>This in turn, gave rise to an often unwanted attic where equally unwanted creatures could nest and crawl through the corrugations of the roof.<span class="Apple-converted-space">  </span>The sheets themselves were attached with standard roofing nails.<span class="Apple-converted-space">
+</span>Their efficiency was entirely in the hands of roofers and carpenters, often falling short in their accuracy.</p>
+<p class="p1">The principle of any roof is to protect the contents of the building from the elements and those unwanted creatures looking for new homes.<span class="Apple-converted-space">  </span>This could only be achieved if the application of the roof was uniform and consistent with all available gaps filled and reliably secured.</p>
+<p class="p1"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/rf2.001.jpg"><img class="alignnone size-full wp-image-4955" src="http://ecmil.net/master/wp-content/uploads/2013/12/rf2.001.jpg" alt="rf2.001" /></a></p>
+<p class="p1">I can still remember my first mending session, patching rusted traditional roof sheeting using 'Flashban' tar foil and roofing nails.<span class="Apple-converted-space">  </span>Most of the field banana sheds in the Eastern Caribbean were, at one time, a bare bones collection of repurposed galvanized sheets, roseau posts and those fix all materials.</p>
+<p class="p1">To make a radical change towards better building standards and aesthetics it was critically important to create quality fixings and accessories.</p>
+<p class="p1"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/ac3.jpg"><img class="alignnone size-full wp-image-4958" src="http://ecmil.net/master/wp-content/uploads/2013/12/ac3.jpg" alt="ac3" /></a></p>
+<p class="p1">So came the roofing screw and with it, the use of T111 grooved plywood boarding to cover the rafters, wooden purlins set at strategic intervals on the boarding and then the roof sheeting, secured by these superbly engineered fixings.  The boarding itself created a cost effective and pleasing alternative to the upscale groove and tongue boarding of town houses, whilst allowing airflow and nicely appointed high ceilings.</p>
+<p class="p1">This modern configuration resolved many lingering issues of roof attachment.<span class="Apple-converted-space">  </span>Firstly, the screws are applied with a drill, using a hexi nut fitting.<span class="Apple-converted-space">  </span>They are self tapping, to easily penetrate the roof sheeting and respond well to the magnet in the drill piece, speeding productivity and a secure, clean finish.</p>
+<p class="p1">In the case of ECMIL, the durable metal and neoprene washer, necessary to the sealing of the screw with the sheet, is designed to work specifically with Colorbond® Steel which the company supplies.  Inferior brands of screws, made from incompatible materials often react negatively with roof sheets, speeding corrosion and damage.  Even the upper shaft of the screw is marginally wider than the thread end to compensate and fill the upper gap left in the timber by the self tapping screw thread, thus causing a watertight plug.  The science is precisely designed to fight the elements, not the materials, so it pays to use tried, tested and approved combinations of components.</p>
+
+<h3 class="p1"><em>ECMIL's reputation as a supplier of quality building materials was built on this premise.</em></h3>
+<a href="http://ecmil.net/master/wp-content/uploads/2013/12/ac2.jpg"><img class="alignnone size-full wp-image-4957" src="http://ecmil.net/master/wp-content/uploads/2013/12/ac2.jpg" alt="ac2" /></a>
+<p class="p1">The story of successful roofing would not be complete without supporting protection to 'fill the gaps'.<span class="Apple-converted-space">
+</span>Stylish flashing protects the exposed edges with a neat finish, while Sealant Tape, a putty like substance, conveniently supplied on a roll, is placed in strips in the overlap between sheets.<span class="Apple-converted-space">  </span>This maintains the integrity of roofing sheet edges and reduces sheet lift due to sustained high winds.<span class="Apple-converted-space">  </span>Finally, foam bat proofing strips filling the sheet corrugations, dramatically reduce under sheet roof penetration by insects, bats and rodents and are available for all ECMIL roof profiles or as a universal profile which will suit all gaps.</p>
+<p class="p1">When you give ECMIL's representatives a call, the company's highly experienced sales staff will always recommend the best selection of supporting materials to maximize the performance and life of your ECMIL roof.<span class="Apple-converted-space">  </span></p>
+<p class="p1">With all of these components working together, the advantages become crystal clear.<span class="Apple-converted-space">  </span>Reliability and functionality, adversity preparation, protection and durability are the net effects when you accessorize!</p>
+<p class="p1"><a href="http://ecmil.net/master/wp-content/uploads/2013/12/roofcheck1.jpg"><img class="alignnone size-full wp-image-4959" src="http://ecmil.net/master/wp-content/uploads/2013/12/roofcheck1.jpg" alt="roofcheck" /></a></p>
